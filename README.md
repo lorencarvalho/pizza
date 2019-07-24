@@ -1,5 +1,7 @@
 # loren's pizza recipe
 
+![pizza](pizza.png)
+
 ## dough
 
 ingredients
