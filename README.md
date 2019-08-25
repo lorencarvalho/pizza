@@ -8,18 +8,18 @@ ingredients
 
 - 300g King Arthur Bread Flour
 - 90g All Purpose Flour
-- 7g Instant Yeast
+- 7g Instant Yeast (maybe this is too much? need to experiment)
 - 1 tsp salt
 - 1/4 cup Olive Oil
 - 1 cup water
 
 combine by hand until the mixture forms a shaggy dough
 
-sit covered for 20m
+sit covered for 20m to hydrate the flour
 
-knead
+knead until dough passes window pane test (at least 10 minutes)
 
-divide into 3 220g dough balls
+divide into 3 dough balls, they should each weigh ~230g
 
 refrigerate for 24-72 hours
  
