@@ -8,7 +8,7 @@ ingredients
 
 - 300g King Arthur Bread Flour
 - 90g All Purpose Flour
-- 7g Instant Yeast (maybe this is too much? need to experiment)
+- 7g Instant Yeast (or one packet)
 - 1 tsp salt
 - 1/4 cup Olive Oil
 - 1 cup water
