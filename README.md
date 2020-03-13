@@ -31,18 +31,19 @@ ingredients
 - pepper
 - oregano
 - garlic
+- olive oil
 
 stick blend the entire can of tomatoes
 
-add salt, pepper, oregano & garlic (can be minced, powdered, whatever) to taste
+add olive oil, salt, pepper, oregano & garlic (can be minced, powdered, whatever) to taste
 
-store in a jar in the fridge overnight until the water separates (in a 16oz mason jar there should be about an inch of water at the bottom).
+store in a jar in the fridge overnight.
 
 ## cheese
 
 - low moisture whole milk mozzarella
 - shredded parmesan
-- (optional) asiago, provelone, etc
+- (optional) asiago, fontina, provelone, etc
 
 as long as most of the cheese is mozz, you can do whatever you like here
 
