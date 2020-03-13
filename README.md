@@ -6,12 +6,11 @@
 
 ingredients
 
-- 300g King Arthur Bread Flour
-- 90g All Purpose Flour
-- 7g Instant Yeast (or one packet)
-- 1 tsp salt
-- 1/4 cup Olive Oil
-- 1 cup water
+- 500g King Arthur bread flour
+- 300g water
+- 10g salt
+- 10g agave syrup / honey / sugar
+- 2.5g instant yeast
 
 combine by hand until the mixture forms a shaggy dough
 
