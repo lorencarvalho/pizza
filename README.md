@@ -6,19 +6,19 @@
 
 ingredients
 
-- 390 King Arthur bread flour
-- 235g water (~60%)
-- 8g salt
+- 400g King Arthur bread flour
+- 240g water (~60%)
+- 5g salt
 - 10g agave syrup / honey / sugar
 - 2.5g instant yeast
 
-place flour salt & yeast into a bowl, mixed
+combine flour salt & yeast in a large bowl
 
-add water & sugar and combine by hand until the mixture forms a shaggy dough
+dissolve the sugar into the water and combine with dry ingredients by hand until the mixture forms a shaggy dough
 
 sit covered for 12-18 hours
 
-divide the dough into 3 portions (should be ~230g each) and fold each into a ball
+divide the dough into 3 portions (should be ~220g each) and fold each into a ball
 
 refrigerate for 24-72 hours
  
