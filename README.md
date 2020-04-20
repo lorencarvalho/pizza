@@ -18,7 +18,7 @@ dissolve the sugar into the water and combine with dry ingredients by hand until
 
 sit covered for 12-18 hours
 
-divide the dough into 3 portions (should be ~220g each) and fold each into a ball
+divide the dough into 3 portions (should be ~220g each) and gently fold each into a ball
 
 refrigerate for 24-72 hours
  
