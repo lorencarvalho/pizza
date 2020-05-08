@@ -27,6 +27,7 @@ refrigerate for 24-72 hours
 ingredients
 
 - 1 can Cento San Marzano tomatoes
+- Cento tomato paste (to taste)
 - salt
 - pepper
 - oregano
@@ -51,20 +52,20 @@ try to keep the ratio of cheese to sauce 1:1
 
 # step by step
 
-preheat oven as hot as it will go with a pizza steel inside
+take the dough out of the fridge and let it come to room temperature (covered)
+
+preheat oven as hot as it will go with a pizza steel inside, the longer the better
 
 using your fingertips gently press a circle into the dough leaving 1" of the edge untouched (for the crust)
 
-stretch the dough (using your knuckles) into a 12" circle, avoid touching the edge too much
+stretch the dough (using your knuckles) into a 12" circle, avoid touching the edge too much, be gentle!
 
 put some flour and/or cornmeal onto a pizza peel and lay the dough on it
 
-scooping from the top of the jar with a spoon, add 2-4oz of sauce to the dough
-
-sprinkle some oregano on top of the sauce
+scooping from the top of the jar with a spoon, add 2 or 3 spoonfuls of sauce to the dough
 
 add cheese
 
-slide the pizza onto your hot pizza steel and cook until the cheese is melted and the crust begins to speckle and brown, ideally 5-8 minutes.
+slide the pizza onto your hot pizza steel and cook until the cheese is melted and the crust begins to speckle and brown, ideally 5-8 minutes, but don't be afraid to leave it in there a little longer.
 
 rest for a minute or two and enjoy!
