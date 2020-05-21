@@ -42,6 +42,8 @@ add olive oil, salt, pepper, oregano & garlic (can be minced, powdered, whatever
 
 stick blend for a smoother sauce, otherwise leave it chunky (up to you)
 
+if you get heartburn easily, or experience a stomachache after eating your pies, try adding 1/4 tsp of baking soda to your sauce
+
 store in a jar in the fridge overnight, you _can_ use it immediately, but it's much better the next day
 
 ## cheese
@@ -49,6 +51,8 @@ store in a jar in the fridge overnight, you _can_ use it immediately, but it's m
 - low moisture whole milk mozzarella
 - shredded parmesan
 - (optional) asiago, fontina, provelone, etc
+
+to reiterate: *low moisture whole milk* mozzarella
 
 as long as most of the cheese is mozz, you can do whatever you like here
 
