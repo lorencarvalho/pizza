@@ -6,11 +6,11 @@
 
 ingredients
 
-- 400g King Arthur bread flour
-- 240g water (~60%)
+- 400g King Arthur Sir Lancelot flour
+- 260g water (~65%)
 - 5 to 10g salt
 - 10g agave syrup / honey / sugar
-- 3g instant yeast
+- 3 to 5g SAF instant yeast
 
 combine flour salt & yeast in a large bowl
 
@@ -18,7 +18,7 @@ dissolve the sugar into the water and combine with dry ingredients by hand until
 
 sit covered for 20 minutes to an hour to hydrate the dough
 
-divide the dough into 3 portions (should be ~220g each) and gently fold each into a ball
+divide the dough into 3 portions (should be ~225g each) and gently fold each into a ball
 
 refrigerate for 24-72 hours
  
@@ -34,9 +34,13 @@ ingredients
 - garlic
 - olive oil
 
-stick blend the entire can of tomatoes
+take the tomatos out of the can, one by one, rinse them (this is important!) and pat dry
+
+crush them by hand into a bowl or mason jar
 
 add olive oil, salt, pepper, oregano & garlic (can be minced, powdered, whatever) to taste
+
+stick blend for a smoother sauce, otherwise leave it chunky (up to you)
 
 store in a jar in the fridge overnight, you _can_ use it immediately, but it's much better the next day
 
