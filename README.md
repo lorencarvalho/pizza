@@ -16,9 +16,11 @@ combine flour salt & yeast in a large bowl
 
 dissolve the sugar into the water and combine with dry ingredients by hand until the mixture forms a shaggy dough
 
-sit covered for 20 minutes to an hour to hydrate the dough
+sit covered for 20 minutes to hydrate the dough
 
-divide the dough into 3 portions (should be ~225g each) and gently fold each into a ball
+you can knead the dough a little, but it doesn't need much
+
+divide the dough into 3 portions (should be slightly less than 230g each) and fold each into a ball
 
 refrigerate for 24-72 hours
  
