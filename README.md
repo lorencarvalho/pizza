@@ -70,7 +70,7 @@ using your fingertips gently press a circle into the dough leaving 1" of the edg
 
 stretch the dough (using your knuckles) into a 12" circle, avoid touching the edge too much, be gentle!
 
-put some flour and/or cornmeal onto a pizza peel and lay the dough on it
+put a generous amount of semolina flour onto a pizza peel and lay the dough on it
 
 scooping from the top of the jar with a spoon, add 2 or 3 spoonfuls of sauce to the dough
 
