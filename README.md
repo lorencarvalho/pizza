@@ -10,7 +10,7 @@ ingredients
 - 260g water (~65%)
 - 5 to 10g salt
 - 10g agave syrup / honey / sugar
-- 3 to 5g SAF instant yeast
+- 5g SAF instant yeast
 
 combine flour salt & yeast in a large bowl
 
